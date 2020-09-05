@@ -1,1 +1,0 @@
-# tqwvgz7687sd.github.io
